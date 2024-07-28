@@ -24,7 +24,8 @@ To work in a challenging environment that provides ample opportunities for learn
 **Professional Experience:**
 
 - **Saintgits College of Engineering:**
-  - Assistant Professor – Sr. (2016 onwards)
+  - Assistant Professor – Spl. (2022 onwards)
+  - Assistant Professor – Sr. (2016-2022)
   - Assistant Professor (2010-2016)
   - Lecturer (2009-2010)
 - **BVM Holy Cross College, Cherpunkal:**
