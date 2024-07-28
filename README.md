@@ -2,7 +2,7 @@
 
 #### Jobin Jose
 
-**Assistant Professor (Sr.)**  
+**Assistant Professor (Spl.)**  
 Department of Mathematics  
 Saintgits College of Engineering, Kottayam
 
